@@ -1,1 +1,2 @@
-netflix gpt
+netflix gpt!
+Lorem ipsum dolor sit amet consectetur adipisicing elit. Esse, rerum saepe ratione in tempore eos perspiciatis accusantium cumque eveniet laudantium eius, quod beatae nobis cupiditate consequuntur atque veritatis odio aspernatur fugit aut omnis id.
